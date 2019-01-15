@@ -54,3 +54,19 @@ modifications: added bell pepper, turmeric. Did not use garlic. on stove more th
 6. Serve over pasta with freshly grated Parmesan cheese.
 
 
+## Loobia
+
+
+1 medium/big brown or white onion copped small, then sorkh kon + zardchoobeh as always
+chop 2 1/2 lbs tomato (without skin and middle) cut into narrow strips, as you add tomato increase heat. 
+Then salt, pepper, lime zest (one side, shredded tiny), 1/3 teaspoon garlic powder, paprika (and zardchoobeh -- do it in step 1 instead). 
+Then into big pot, 40 once of pinto, 15 ounces of northern bean, (and possible the canneline bean). 
+One TEA spoon deli mustard, 
+2 spoon ketchup, 
+possibly 1 teaspoon of honey, 
+4 ghashog aabe khiyarshoor, 2 khyarshoor koochalk or one big very very tiny cut. 
+1 table spoon tomato paste (3 ghashog rob). Kind of tick. Sometimes need to add water. 
+At the end 6 table spoon roughen zeytoon. 
+A bit of aabe lime (1/2 the lime you used for zest).
+
+
