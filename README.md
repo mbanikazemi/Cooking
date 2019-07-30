@@ -70,3 +70,40 @@ At the end 6 table spoon roughen zeytoon.
 A bit of aabe lime (1/2 the lime you used for zest).
 
 
+## Fish
+
+Tilapia with Escarole and Lemon-Pepper Oil
+https://www.foodnetwork.com/recipes/food-network-kitchen/tilapia-with-escarole-and-lemon-pepper-oil-recipe-1972910
+
+Ingredients
+
+1/2 cup extra-virgin olive oil
+12 ounces baby fingerling potatoes, halved, or small red-skinned potatoes, quartered
+4 cloves garlic, smashed
+1 head escarole (about 1 1/4 pounds), torn into pieces
+Kosher salt and freshly ground pepper
+1 1/4 pounds tilapia fillets, patted dry
+2 sprigs fresh oregano, leaves torn
+
+Directions
+
+1. Heat 1/4 cup of the olive oil in a large deep skillet with a lid over
+medium heat. Place the potatoes in the pan cut-side down. Add the
+garlic and cook until the potatoes are slightly golden and crisp, 4 to
+5 minutes. Add the escarole, season with salt and pepper, then add
+about 1/3 cup water. Cover and steam until the escarole wilts, about 5
+minutes.
+
+2. Season the fish with salt and pepper; place on top of the greens in
+the pan and sprinkle with the oregano leaves. Cover and steam until
+the fish is just cooked through, about 5 more minutes.
+
+3. Meanwhile, whisk the lemon juice in a bowl with the remaining 1/4 cup
+olive oil; season with 1 teaspoon salt and plenty of pepper.
+
+4. Carefully lift the fish off the greens and transfer to rimmed plates
+or bowls. Distribute the greens, potatoes and pan juices around the
+fish. Drizzle with the lemon-pepper oil.
+
+5. Photograph By Antonis Achilleos
+
