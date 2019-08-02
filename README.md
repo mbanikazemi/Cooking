@@ -72,7 +72,8 @@ A bit of aabe lime (1/2 the lime you used for zest).
 
 ## Fish
 
-Tilapia with Escarole and Lemon-Pepper Oil
+
+### Tilapia with Escarole and Lemon-Pepper Oil
 https://www.foodnetwork.com/recipes/food-network-kitchen/tilapia-with-escarole-and-lemon-pepper-oil-recipe-1972910
 
 Ingredients
@@ -105,5 +106,60 @@ olive oil; season with 1 teaspoon salt and plenty of pepper.
 or bowls. Distribute the greens, potatoes and pan juices around the
 fish. Drizzle with the lemon-pepper oil.
 
-5. Photograph By Antonis Achilleos
+
+
+### Tilapia With Hash Browns
+https://www.foodnetwork.com/recipes/food-network-kitchen/tilapia-with-hash-browns-recipe-1973273
+
+
+MODDIFICATION: NO NEED FOR USING OVEN
+IMPORTANT: OLIVE MAKES THE DISH
+
+Ingredients
+1 20-ounce bag frozen shredded hash browns, thawed
+4 cloves garlic, smashed and thinly sliced
+Kosher salt
+5 tablespoons extra-virgin olive oil, us more for drizzling
+1/2 cup pitted Spanish green olives, roughly chopped
+3/4 pound tomatoes, cut into 1-inch pieces
+1/4 cup diced roasted red peppers
+3 scallions, white and light green parts only, chopped
+2 tablespoons chopped fresh parsley
+1 1/2 pounds skinless tilapia fillets
+1 teaspoon herbes de Provence or dried rosemary
+Freshly ground pepper
+
+
+Directions
+
+1. Toss the hash browns with the garlic and 1 teaspoon salt in a
+bowl. Heat 2 tablespoons olive oil in a large nonstick ovenproof
+skillet over medium heat. Add the hash browns, flatten with a spatula
+and cook until the bottom is golden brown, 6 to 8 minutes. Drizzle
+with 2 tablespoons olive oil. Flip the potato cake and pat it back
+into shape. Cook until crisp and golden, 6 to 8 minutes.
+
+2. Meanwhile, mix the olives, tomatoes, roasted peppers, scallions and
+parsley in a bowl. Cut the fish into 12 pieces and season with the
+dried herbs, salt and pepper. Scatter half of the olive mixture over
+the potato cake and top with the fish.
+
+3. Scatter the remaining olive mixture on top and drizzle with the
+remaining 1 tablespoon olive oil. Cover the skillet to the oven and
+bake until the fish is cooked through, about 12 minutes. Drizzle with
+olive oil and season with salt. Serve from the skillet.
+
+4. Per serving: Calories 443; Fat 19 g (Saturated 3 g); Cholesterol 85
+mg; Sodium 937 mg; Carbohydrate 32 g; Fiber 4 g; Protein 37 g
+
+
+### Linguine with Shrimp Scampi
+https://www.foodnetwork.com/recipes/ina-garten/linguine-with-shrimp-scampi-recipe3-1916619
+
+
+
+
+Bucatini all'Amatriciana
+https://www.foodnetwork.com/recipes/rachael-ray/bucatini-allamatriciana-recipe-1943244
+
 
