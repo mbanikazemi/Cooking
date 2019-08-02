@@ -31,7 +31,7 @@ MARCELLA HAZAN’S BOLOGNESE IN 1 HOUR
 
 modifications: added bell pepper, turmeric. Did not use garlic. on stove more than 1 hour.
 
-   INGREDIENTS
+INGREDIENTS
 * 4 tablespoons butter
 * 1 cup chopped onion
 * 1 cup chopped carrot
@@ -45,7 +45,7 @@ modifications: added bell pepper, turmeric. Did not use garlic. on stove more th
 * 1 28 ounce can of crushed or diced tomatoes and their juices 
 * Bay leaf 
 
-   INSTRUCTIONS
+INSTRUCTIONS
 1. In a large saute pan or Dutch oven, heat the butter on low. Add the onions, carrots and garlic and cook until soft, about 7-10 minutes. Add ground beef, salt and pepper. Turn heat up to medium-high and stir until meat is cooked through.
 2. Add milk and nutmeg, stir and bring up to a boil again for about 5 minutes until you see no more milk.
 3. Add white wine, stir and bring back up to a boil for about 3 minutes, until you see no more wine.
@@ -78,13 +78,13 @@ https://www.foodnetwork.com/recipes/food-network-kitchen/tilapia-with-escarole-a
 
 Ingredients
 
-1/2 cup extra-virgin olive oil
-12 ounces baby fingerling potatoes, halved, or small red-skinned potatoes, quartered
-4 cloves garlic, smashed
-1 head escarole (about 1 1/4 pounds), torn into pieces
-Kosher salt and freshly ground pepper
-1 1/4 pounds tilapia fillets, patted dry
-2 sprigs fresh oregano, leaves torn
+* 1/2 cup extra-virgin olive oil
+* 12 ounces baby fingerling potatoes, halved, or small red-skinned potatoes, quartered
+* 4 cloves garlic, smashed
+* 1 head escarole (about 1 1/4 pounds), torn into pieces
+* Kosher salt and freshly ground pepper
+* 1 1/4 pounds tilapia fillets, patted dry
+* 2 sprigs fresh oregano, leaves torn
 
 Directions
 
@@ -113,21 +113,22 @@ https://www.foodnetwork.com/recipes/food-network-kitchen/tilapia-with-hash-brown
 
 
 MODDIFICATION: NO NEED FOR USING OVEN
+
 IMPORTANT: OLIVE MAKES THE DISH
 
 Ingredients
-1 20-ounce bag frozen shredded hash browns, thawed
-4 cloves garlic, smashed and thinly sliced
-Kosher salt
-5 tablespoons extra-virgin olive oil, us more for drizzling
-1/2 cup pitted Spanish green olives, roughly chopped
-3/4 pound tomatoes, cut into 1-inch pieces
-1/4 cup diced roasted red peppers
-3 scallions, white and light green parts only, chopped
-2 tablespoons chopped fresh parsley
-1 1/2 pounds skinless tilapia fillets
-1 teaspoon herbes de Provence or dried rosemary
-Freshly ground pepper
+* 1 20-ounce bag frozen shredded hash browns, thawed
+* 4 cloves garlic, smashed and thinly sliced 
+* Kosher salt
+* 5 tablespoons extra-virgin olive oil, us more for drizzling
+* 1/2 cup pitted Spanish green olives, roughly chopped
+* 3/4 pound tomatoes, cut into 1-inch pieces
+* 1/4 cup diced roasted red peppers
+* 3 scallions, white and light green parts only, chopped
+* 2 tablespoons chopped fresh parsley
+* 1 1/2 pounds skinless tilapia fillets
+* 1 teaspoon herbes de Provence or dried rosemary
+* Freshly ground pepper
 
 
 Directions
@@ -160,6 +161,7 @@ https://www.foodnetwork.com/recipes/ina-garten/linguine-with-shrimp-scampi-recip
 
 
 Bucatini all'Amatriciana
+
 https://www.foodnetwork.com/recipes/rachael-ray/bucatini-allamatriciana-recipe-1943244
 
 
