@@ -153,6 +153,10 @@ olive oil and season with salt. Serve from the skillet.
 4. Per serving: Calories 443; Fat 19 g (Saturated 3 g); Cholesterol 85
 mg; Sodium 937 mg; Carbohydrate 32 g; Fiber 4 g; Protein 37 g
 
+### Giada's Grilled Swordfish 
+Giada prepares a fresh lemon, mint and basil sauce to top her swordfish.
+https://www.foodnetwork.com/videos/giadas-grilled-swordfish-0236001
+
 
 ### Linguine with Shrimp Scampi
 https://www.foodnetwork.com/recipes/ina-garten/linguine-with-shrimp-scampi-recipe3-1916619
@@ -194,6 +198,37 @@ serve.
 
 
 Bucatini all'Amatriciana
-
 https://www.foodnetwork.com/recipes/rachael-ray/bucatini-allamatriciana-recipe-1943244
+
+
+
+Grilled Swordfish with Lemon, Mint and Basil
+https://www.foodnetwork.com/recipes/giada-de-laurentiis/grilled-swordfish-with-lemon-mint-and-basil-recipe-1941592
+
+
+
+1 ounce == 2 table spoon
+
+2 ounces tequila
+½ ounce lime juice
+1 ounce watermelon juice
+½ ounce agave syrup
+½ chopped jalapeño (or to your liking) <=== 1
+
+
+
+Ratio  4 taquila
+       4 Others :  1 Suger Syrap + 1 Lime juice + 2 Watermelon juice or mode
+ 
+
+
+### Steak
+
+a few pieces of dried garlic
+do small potatos; cut in half; 3-4 minutes each side
+add green bean for 5-6 minutes all in olive oil
+
+
+steak, add pepper salt olive oil, leave a few mins, other side the same
+in hot skilete for 3-4 minutes, turn another 3 mins, put the top for 2 mins if two red inside
 
