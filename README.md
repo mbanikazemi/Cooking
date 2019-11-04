@@ -195,17 +195,43 @@ flakes. Toss to combine.
 back in the pot. Immediately add the shrimp and sauce, toss well, and
 serve.
 
+### Halibut with Lemon Butter Shallot
+https://www.foodnetwork.com/recipes/giada-de-laurentiis/halibut-with-lemon-butter-and-crispy-shallots-recipe-2124933
 
 
-Bucatini all'Amatriciana
+
+### Bucatini all'Amatriciana
 https://www.foodnetwork.com/recipes/rachael-ray/bucatini-allamatriciana-recipe-1943244
 
 
 
-Grilled Swordfish with Lemon, Mint and Basil
+### Grilled Swordfish with Lemon, Mint and Basil
 https://www.foodnetwork.com/recipes/giada-de-laurentiis/grilled-swordfish-with-lemon-mint-and-basil-recipe-1941592
 
+ 
+### Mahi Mahi With Cauliflower
+https://www.foodnetwork.com/recipes/food-network-kitchen/mahi-mahi-with-cauliflower-recipe-1973802
 
+
+### Tilapia Masala With Rice
+https://www.foodnetwork.com/recipes/food-network-kitchen/tilapia-masala-with-rice-recipe-1973771
+
+### Steak
+
+a few pieces of dried garlic
+do small potatos; cut in half; 3-4 minutes each side
+add green bean for 5-6 minutes all in olive oil
+
+
+steak, add pepper salt olive oil, leave a few mins, other side the same
+in hot skilete for 3-4 minutes, turn another 3 mins, put the top for 2 mins if two red inside
+
+###  brussels-sprouts
+
+https://www.foodnetwork.com/recipes/sunny-anderson/pan-roasted-brussels-sprouts-with-bacon-recipe-1944571
+
+
+## Drinks
 
 1 ounce == 2 table spoon
 
@@ -219,16 +245,3 @@ https://www.foodnetwork.com/recipes/giada-de-laurentiis/grilled-swordfish-with-l
 
 Ratio  4 taquila
        4 Others :  1 Suger Syrap + 1 Lime juice + 2 Watermelon juice or mode
- 
-
-
-### Steak
-
-a few pieces of dried garlic
-do small potatos; cut in half; 3-4 minutes each side
-add green bean for 5-6 minutes all in olive oil
-
-
-steak, add pepper salt olive oil, leave a few mins, other side the same
-in hot skilete for 3-4 minutes, turn another 3 mins, put the top for 2 mins if two red inside
-
