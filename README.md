@@ -230,6 +230,13 @@ in hot skilete for 3-4 minutes, turn another 3 mins, put the top for 2 mins if t
 
 https://www.foodnetwork.com/recipes/sunny-anderson/pan-roasted-brussels-sprouts-with-bacon-recipe-1944571
 
+### Lasagna
+https://www.foodnetwork.com/recipes/paula-deen/lots-omeat-lasagna-recipe-1940492
+
+Followed the above with some changes:
+Used a bit more than 2lbs of ground beef; prepared it the traditional Persian style
+Used 1 instead of 2 cans of tomato sauce
+Did not use  ground oregano and ground basil
 
 ## Drinks
 
