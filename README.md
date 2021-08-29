@@ -252,3 +252,61 @@ Did not use  ground oregano and ground basil
 
 Ratio  4 taquila
        4 Others :  1 Suger Syrap + 1 Lime juice + 2 Watermelon juice or mode
+
+
+
+## Catfish
+https://www.foodnetwork.com/recipes/guy-fieri/not-lackin-on-the-blackenin-catfish-recipe-1942935#reviewsTop
+https://www.foodnetwork.com/recipes/sandra-lee/blackened-catfish-with-trinity-of-sauteed-vegetables-recipe-1948923
+
+## Banana Nut Bread
+
+Eileen's Banana Nut Bread
+1½ c sugar
+¾ c vegetable oil
+4 eggs
+1 package (3.4 ounces) vanilla instant custard (pudding)
+2½ c flour
+1 teaspoon salt
+½ tsp baking powder
+2 tsp baking soda
+3 c mashed bananas
+1½ c chopped nuts
+Preheat oven to 350°F (175°C). Spray 3 small loaf pans with cooking spray. Combine sugar, oil and eggs; mix well. Add remaining ingredients. Pour mixture into loaf pans. Bake for 55 minutes. Makes 12 servings.
+ Cake
+
+ “If you don’t have pudding, you can put in sour cream. It will make it nice and light and adds a creamy flavour.”
+
+
+## Tofu
+
+1- Tofu extra hard cut into cubes and satued with salt and pepper and a bit of oil
+Then add
+     Green beans
+     stock concentrate
+     chili sauce
+     bulgogi sauce
+     2 TBSP water
+     1/2 lime
+     1 TBSP butter
+
+1 TSP Sugar + 2 TBSP water + peanut for 3-5 minutes
+
+Sesame seeds
+
+Alternate:
+	sliced carrot 3-5 minutes + sallion white + garlic for a couple minutes
+
+2- Rice
+
+
+## Chickpea
+
+1- zuccii + cherry tomatoes sliced and sauted + garlic and scallion white + salt and pepper + chickpeas
+   alternate: culiflowers
+
+2- couscous:
+	butter + scallion white + garlic 1 minute + CCouscccous for 1-2 minutes
+	add 1/2 cup water + stock conentrate to boil then cover and cook for 6-8 minutes
+
+
