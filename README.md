@@ -310,3 +310,29 @@ Alternate:
 	add 1/2 cup water + stock conentrate to boil then cover and cook for 6-8 minutes
 
 
+## Pumpkin Pie (Paula Deen)
+
+Ingredients
+1 (8 oz) package softened cream cheese
+2 cups mashed canned pumpkin
+1 cup sugar
+1/4 teaspoon salt
+1 plus 2 egg yolks, slightly beaten egg
+1 cup half and half
+1/4 cup melted butter
+1 teaspoon vanilla extract
+1/2 teaspoon ground cinnamon
+1/4 teaspoon optional ground ginger
+1 piece pre-made pie dough
+for topping whipped cream
+Directions
+Preheat the oven to 350 °F.
+
+Place 1 piece of pre-made pie dough down into a (9-inch) pie pan and press down along the bottom and all sides. Pinch and crimp the edges together to make a pretty pattern. Put the pie shell back into the freezer for 1 hour to firm up. Fit a piece of aluminum foil to cover the inside of the shell completely. Fill the shell up to the edges with pie weights or dried beans (about 2 pounds) and place it in the oven. Bake for 10 minutes, remove the foil and pie weights and bake for another 10 minutes or until the crust is dried out and beginning to color.
+
+For the filling, in a large mixing bowl, beat the cream cheese with a hand mixer. Add the pumpkin and beat until combined. Add the sugar and salt, and beat until combined. Add the eggs mixed with the yolks, half-and-half and melted butter, and beat until combined. Finally, add the vanilla, cinnamon and ginger, if using, and beat until incorporated.
+
+Pour the filling into the warm prepared pie crust and bake for 50 minutes, or until the center is set. Place the pie on a wire rack and cool to room temperature. Cut into slices and top each piece with a generous amount of whipped cream.
+
+
+
